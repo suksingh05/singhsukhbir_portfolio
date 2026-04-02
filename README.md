@@ -1,6 +1,6 @@
 # Dr. Sukhbir Singh
-singhsukhbir_portfolio
-/pic.jpg
+singhsukhbir_portfolio/pic.jpg
+
 Assistant Professor, Department of Physics  
 Rayat Bahra University, Mohali, Punjab, India
 
