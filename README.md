@@ -1,5 +1,5 @@
 # Dr. Sukhbir Singh
-
+https://scholar.googleusercontent.com/citations?view_op=medium_photo&user=nIAssm0AAAAJ&citpid=6
 Assistant Professor, Department of Physics  
 Rayat Bahra University, Mohali, Punjab, India
 
